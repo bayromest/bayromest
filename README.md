@@ -9,3 +9,4 @@ Starting at 5 with piano and traditional percussions, graphic design eye opened 
 <a href="https://www.instagram.com/bayremlikebayrem/" target=”_blank”>Instagram↗</a>
 <a href="https://soundcloud.com/exod_starz" target=”_blank”>Soundcloud↗</a>
 
+
