@@ -1,4 +1,4 @@
-### +200 BPM Hardcore / Tekno ☣️ 
+### +200 BPM Hardcore Tekno ☣️ 
 <a href="https://www.instagram.com/bayremlikebayrem/" target="_blank"><img src="https://i.imgur.com/eKy5y6d.png" width=450 align="right"/></a>
 <p align="left">
 </br>
